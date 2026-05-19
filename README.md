@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sholexh
+- 👋 Hi, I’m @OlusolaStephen
 - 👀 I’m interested in ... Tech,Writing and Art
 - 🌱 I’m into Tech, writing and art
 - 💞️ I’m looking to collaborate on Tech, Writing and Art
